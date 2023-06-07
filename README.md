@@ -1,2 +1,4 @@
 # KSuperCoolRedirect
-[www.google.com](url) [https://jcw87.github.io/c2-sans-fight/](url) [https://www.coolmathgames.com/]
+This page is mainly for me and my school. feel free to use though! :3
+
+v1
